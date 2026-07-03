@@ -43,6 +43,6 @@
 
 ㅤㅤㅤㅤㅤㅤ [rentry](https://rentry.co/taracarpenter)
 ㅤㅤ୨୧ㅤㅤ[tiktok](https://www.tiktok.com/@bunnyremover)
-ㅤㅤ୨୧ㅤㅤ[twitter](https://twitter.com/carpentertism)
+ㅤㅤ୨୧ㅤㅤ[twitter](https://x.com/princessremover)
 
 </div>
