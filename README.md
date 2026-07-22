@@ -1,5 +1,4 @@
-<p align="center"><img width="400" src="https://i.postimg.cc/1tWWHy6t/dduspbc_2422c667_7ba7_4fe0_b912_4d067f2d70a5.png"></p>
-ㅤ
+
 
 <div align="center">
 
@@ -18,11 +17,11 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Mystery+Quest&duration=6000&pause=1000&color=FFFFFF&center=true&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4once%E3%85%A4%E3%85%A4upon%E3%85%A4%E3%85%A4a%E3%85%A4%E3%85%A4dream%E3%85%A4%E3%85%A4%EF%BD%A1+%EF%BD%A1%E3%85%A4%E3%85%A4%CB%9A+%E2%82%8A)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=30&duration=7000&pause=2&color=FFFFFF&center=true&width=435&lines=turn%E3%85%A4%E3%85%A4up%E3%85%A4%E3%85%A4or%E3%85%A4%E3%85%A4die%E3%85%A4%E3%85%A4%E2%99%A1)](https://git.io/typing-svg)
 
 </div>
 
-<img src="https://github.com/user-attachments/assets/4790f61e-4a54-4593-99e1-8b5477bb5bd1" width="370" align="left">
+<img src="https://github.com/user-attachments/assets/c5e54e5b-3eed-43f4-a30d-47fcccf6338e" width="370" align="left">
 
 <table>
 <br>
