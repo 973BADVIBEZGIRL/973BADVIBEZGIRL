@@ -31,14 +31,3 @@
 
 
 　　　　jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2588.gif" width="22">　　6　𓈒　13　𓈒　26
-
-
-
-
-<div align="left">
-
-ㅤㅤㅤㅤㅤㅤ [rentry](https://rentry.co/taracarpenter)
-ㅤㅤ୨୧ㅤㅤ[tiktok](https://www.tiktok.com/@bunnyremover)
-ㅤㅤ୨୧ㅤㅤ[twitter](https://x.com/princessremover)
-
-</div>
