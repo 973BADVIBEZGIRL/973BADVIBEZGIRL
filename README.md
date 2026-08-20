@@ -27,7 +27,7 @@
   
 ⠀⠀⠀⠀⠀⠀⠀ ֺ𓐇 ͡ . ֹ 　　tara　　ᵒʳ　　dreamy　　(*ᴗ͈ˬᴗ͈)　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2589.gif" width="22">
 
-⠀⠀⠀⠀⠀⠀⠀she　　/　　doll　　𓏼 ̣̣ :　　aroace　　girlthing
+⠀⠀⠀⠀⠀⠀⠀shy　　/　　doll　　𓏼 ̣̣ :　　aroace　　girlthing
 
 
 　　　　jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2588.gif" width="22">　　6　𓈒　13　𓈒　26
