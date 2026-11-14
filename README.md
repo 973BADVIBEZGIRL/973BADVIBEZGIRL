@@ -21,7 +21,7 @@
 
 </div>
 
-<img src="https://github.com/user-attachments/assets/c5e54e5b-3eed-43f4-a30d-47fcccf6338e" width="370" align="left">
+<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8207.gif?v=1794624465756" width="230" align="left">
 
 
   
@@ -35,5 +35,3 @@
  　　　　　　 sign　　my　　atabook　　𓈒　𓈒　　ok　　?
 
 
-
-<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8207.gif?v=1794624465756" width="370" align="left">
