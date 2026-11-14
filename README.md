@@ -33,3 +33,7 @@
 　　　　jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2588.gif" width="22">　　6　𓈒　13　𓈒　26
 
  　　　　　　 sign　　my　　atabook　　𓈒　𓈒　　ok　　?
+
+
+
+<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8207.gif?v=1794624465756" width="370" align="left">
