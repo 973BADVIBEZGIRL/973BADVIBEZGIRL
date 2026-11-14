@@ -21,7 +21,7 @@
 
 </div>
 
-<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8207.gif?v=1794624465756" width="230" align="left">
+<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8207.gif?v=1794624465756" width="180" align="left">
 
 
   
