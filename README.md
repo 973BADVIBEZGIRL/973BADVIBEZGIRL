@@ -15,7 +15,7 @@
 
 <div align="center"> 
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=30&duration=7000&pause=2&color=FFFFFF&center=true&width=435&lines=turn%E3%85%A4%E3%85%A4up%E3%85%A4%E3%85%A4or%E3%85%A4%E3%85%A4die%E3%85%A4%E3%85%A4%E2%99%A1)](https://git.io/typing-svg) 
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Emily's+Candy&size=12&pause=200&color=FFFFFF&center=true&width=435&lines=and%E3%80%80if%E3%80%80you%E3%80%80wake%E3%80%80up%E3%80%80%2C%E3%80%80i%E3%80%80hope%E3%80%80everything+'+s%E3%80%80okay;sometimes%E3%80%80i%E3%80%80think%E3%80%80that%E3%80%80it+'++s%E3%80%80too%E3%80%80much%E3%80%80to%E3%80%80say%E3%80%80that%E3%80%80i%E3%80%80miss%E3%80%80you%E3%80%80%E2%99%A1)](https://git.io/typing-svg) 
   
   </div>
 
